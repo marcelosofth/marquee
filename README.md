@@ -1,4 +1,4 @@
-All files are exclusive, original and very personalized, you certainly won't find anything like them on the internet. If you are a graphic arts enthusiast, you are certainly in the right place! Restoration and Creation of Marquees for Arcades / Console / Computer / Logos with high resolution 1080x480!
+All files are exclusive, original and very personalized, you certainly won't find anything like them on the internet. If you are a graphic arts enthusiast, you are certainly in the right place! Restoration and Creation of Marquees for Arcades / Console / Computer / Logos with high resolution 1920x480!
 
 - Arts to be used on monitors in various systems for Arcades or Emulators such as Batocera/Retropie/CoinOPS Next, etc.
 
